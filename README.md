@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Tanishkarai18
-- 👀 I’m interested in 
 - 🌱 I’m currently learning in BANASTHALI VIDYAPEETH
 -
 - 📫 How to reach me ...
